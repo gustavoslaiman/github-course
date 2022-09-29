@@ -6,4 +6,4 @@ Saiba mais em [willianjusten.com.br](http://willianjusten.com.br)
 
 Gostou do curso?
 
-Se gostou, ajuda nois
+Se gostou, ajuda nois!!
